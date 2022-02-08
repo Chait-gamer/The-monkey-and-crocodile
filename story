@@ -1,2 +1,3 @@
 Once upon a time, in a forest there lived a monkey who was residing on a banana tree. Located near the bank of a river.
-In the same forest there lived a crocodile and his wife.
+In the same forest there lived a crocodile and his wife. One day, the crocodile went to the bank of the river and rested beneath the banana tree. Seeing, the crocodile the monkey gave him some delicious
+fruits to eat. Next day, the crocodile returned to the same spot but to his surprise the monkey wasn't there.
